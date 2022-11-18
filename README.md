@@ -2,4 +2,4 @@
 
 ## Build with 🥺
 
-promo code : sale50
+Free shipping
